@@ -165,7 +165,7 @@ ___
 
 #### 📞 CONTACT
 - **WhatsApp:** [WhatsApp Me](https://wa.me/+8801882333052)
-- **Facebook:** [Profile](https://facebook.com/100044713412032)
+- **Facebook:** [Profile Me](https://facebook.com/100044713412032)
 - **Messenger:** [Message Me](https://m.me/100044713412032)
 
 #### 🚀 APPROACH
